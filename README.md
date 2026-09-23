@@ -35,4 +35,4 @@ An enterprise HCM platform covering the full employee lifecycle — recruitment,
 
 ---
 
-📍 Bangalore & Gurgaon, India  ·  💼 [LinkedIn](https://www.linkedin.com/in/kavita-srivastava-hr)
+📍 Bangalore & Gurgaon, India  ·  💼 [LinkedIn](https://www.linkedin.com/in/kavita-srivastava)
